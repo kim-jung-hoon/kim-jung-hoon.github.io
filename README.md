@@ -1,1 +1,0 @@
-# kim-jung-hoon.github.io
